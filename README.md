@@ -2,7 +2,7 @@
 
 ## Who it's for
 
-This statement was compiled to be included in BFADT + MFADT syllabi. 
+This statement was compiled to be included in BFADT + MFADT syllabi, however it is applicable to any program at the New School. 
 
 ## How to use it
 
